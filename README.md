@@ -1,3 +1,2 @@
 # DeadSec
-
-FUck you
+Si
